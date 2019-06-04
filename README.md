@@ -1,6 +1,9 @@
 # Women-in-the-Bible-Bride-Body-of-Christ-Church
 
+https://www.alextran.org/23-bible-reading-plans-that-will-satisfy-anyone/
+
 Two Weeks on Women of the Bible
+
 ■ Day 1. Genesis 2: Eve, the first woman.
 
 ■ Day 2. Genesis 18: Sarah laughs at God’s promise.
