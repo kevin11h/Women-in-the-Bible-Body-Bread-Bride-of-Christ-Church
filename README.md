@@ -2,6 +2,14 @@
 
 https://www.alextran.org/23-bible-reading-plans-that-will-satisfy-anyone/
 
+https://en.wikipedia.org/wiki/Jesus%27_interactions_with_women
+
+https://en.wikipedia.org/wiki/Disciple_(Christianity)#Women_who_followed_Jesus
+
+https://en.wikipedia.org/wiki/Parable_of_the_Ten_Virgins
+
+https://en.wikipedia.org/wiki/Samaritan_woman_at_the_well
+
 Two Weeks on Women of the Bible
 
 ■ Day 1. Genesis 2: Eve, the first woman.
