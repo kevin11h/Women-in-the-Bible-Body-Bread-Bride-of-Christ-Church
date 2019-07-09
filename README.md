@@ -56,3 +56,10 @@ https://en.wikipedia.org/wiki/Salome_(disciple)
 https://www.thinkingfaith.org/articles/jesus-who-do-you-think-you-are-2-rahab-ruth-and-boaz
 
 https://www.gotquestions.org/life-Rahab.html
+
+Lamentations 4:21 (ESV)
+
+21 	Rejoice and be glad, O daughter of Edom,
+you who dwell in the land of Uz;
+but to you also the cup shall pass;
+you shall become drunk and strip yourself bare.
