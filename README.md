@@ -66,3 +66,5 @@ you shall become drunk and strip yourself bare.
 
 
 https://obscurecharacters.com/category/fathers-daughters/
+
+https://www.gotquestions.org/book-of-Susanna.html
