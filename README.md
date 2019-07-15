@@ -70,3 +70,8 @@ https://obscurecharacters.com/category/fathers-daughters/
 https://www.gotquestions.org/book-of-Susanna.html
 
 https://en.wikipedia.org/wiki/Paul_the_Apostle_and_women
+
+
+https://en.wikipedia.org/wiki/Talitha_(given_name)
+
+https://www.gotquestions.org/Canaanite-woman-dog.html
