@@ -79,3 +79,6 @@ https://www.gotquestions.org/Canaanite-woman-dog.html
 https://www.desiringgod.org/articles/prostitutes-mistresses-and-the-messiah
 
 https://www.amazon.com/Women-Bible-Times-Every-Woman/dp/0785251480
+
+
+https://en.wikipedia.org/wiki/Euodia_and_Syntyche
