@@ -82,3 +82,7 @@ https://www.amazon.com/Women-Bible-Times-Every-Woman/dp/0785251480
 
 
 https://en.wikipedia.org/wiki/Euodia_and_Syntyche
+
+http://www.womeninthebible.net/bible-extras/10-jewish-princess/
+
+http://www.womeninthebible.net/women-bible-old-new-testaments/michal-davids-wife/michals-world/
