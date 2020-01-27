@@ -88,3 +88,7 @@ http://www.womeninthebible.net/bible-extras/10-jewish-princess/
 http://www.womeninthebible.net/women-bible-old-new-testaments/michal-davids-wife/michals-world/
 
 https://blogs.bible.org/engage/sandra_glahn/the_women_in_jesuss_genealogy_if_not_scandalous_what_part_2__
+
+https://www.bibleodyssey.org/en/people/related-articles/queen-of-sheba
+
+https://www.learnreligions.com/solomon-and-sheba-117399
