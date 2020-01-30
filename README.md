@@ -1,8 +1,11 @@
 # Women-in-the-Bible-Bride-Body-of-Christ-Church
+# https://en.wikipedia.org/wiki/Jesus%27_interactions_with_women
+
 
 https://www.alextran.org/23-bible-reading-plans-that-will-satisfy-anyone/
 
-https://en.wikipedia.org/wiki/Jesus%27_interactions_with_women
+https://www.pinterest.com/pin/547117054713209983/
+
 
 https://en.wikipedia.org/wiki/Disciple_(Christianity)#Women_who_followed_Jesus
 
