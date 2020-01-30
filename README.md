@@ -95,3 +95,6 @@ https://blogs.bible.org/engage/sandra_glahn/the_women_in_jesuss_genealogy_if_not
 https://www.bibleodyssey.org/en/people/related-articles/queen-of-sheba
 
 https://www.learnreligions.com/solomon-and-sheba-117399
+
+
+https://www.pinterest.com/bevyonlevy8565/bible-teachings/
