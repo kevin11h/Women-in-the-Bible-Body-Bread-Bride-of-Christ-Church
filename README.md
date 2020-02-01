@@ -98,3 +98,6 @@ https://www.learnreligions.com/solomon-and-sheba-117399
 
 
 https://www.pinterest.com/bevyonlevy8565/bible-teachings/
+
+![](https://1.bp.blogspot.com/-7euOUpH8B_w/VbZvpSUa2EI/AAAAAAAAThI/1dKVzLqAaOQ/s1600/MJ%2B2015%2BWoman%2Bbrings%2Bforth%2B2.jpg)
+![](https://images.knowing-jesus.com/w/400/67+NEW+Ones+From+June+2019/Heavenly+Fellowship+devotional+beige+-+1+John+1-3.jpg)
